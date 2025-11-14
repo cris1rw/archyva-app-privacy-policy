@@ -1,1 +1,1 @@
-# aesthetic-doctor-privacy-policy
+# Archyva-app-privacy-policy
