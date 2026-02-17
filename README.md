@@ -1,2 +1,2 @@
 # Supporto Archyva
-Per assistenza scrivere a: cristiantuli@outlook.com
+Per assistenza scrivere a: info@archyva.it
